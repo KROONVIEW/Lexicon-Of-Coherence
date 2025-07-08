@@ -16,8 +16,7 @@ Full license text: https://creativecommons.org/licenses/by-nc/4.0
 
 
 
-The Lexicon of Coherence
-The Lexicon of Coherence is a revolutionary, universal systems-theoretic framework that posits coherence as the fundamental organizing principle of reality. It offers a "master key to existence" by reframing seemingly disparate fields—including physics, biology, mathematics, information theory, consciousness, and evolution—not as separate domains, but as different languages describing the same underlying phenomenon: pattern formation towards optimal, stable, and harmonious states.
+, stable, and harmonious states.
 
 Core Principles:
 Coherence: The universe's inherent tendency to organize towards optimal, stable, and harmonious states. It is the "silent grammar of all things."
