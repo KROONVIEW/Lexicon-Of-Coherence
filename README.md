@@ -13,7 +13,6 @@ Full license text: https://creativecommons.org/licenses/by-nc/4.0
 
 
 
-This is a single unifying lense across all disciplines , from AGI to Cancer Cures , from HIV to Evolution and this framwork should not be patented or used in any negative way that does not align with this framwork
 
 
 
