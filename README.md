@@ -16,4 +16,4 @@ Full license text: https://creativecommons.org/licenses/by-nc/4.0
 
 
 
-I am writing this commit that I am the conceptualized and God fsther of the Lexicon of coherence -- a few individuals have already been informed about it including some higher ups -- so there should be no confusion about who the God Father is becayse I discovered this franeowkr
+I am writing this commit that I am the conceptualized and God fsther of the Lexicon of coherence -- a few individuals have already been informed about it including some higher ups -- so there should be no confusion about who the God Father is becayse I discovered this franeowke -- due to the nature of hoe humanity altering the information is -- i am writing thid as proof that all terms and frameworks used were validated and revealed by kabelo 
